@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @pattym22
+- 👀 I’m interested in horses
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me pattym222@proton.me
